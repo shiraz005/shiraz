@@ -1,7 +1,7 @@
 # Developer
 
 ### education 
-Qaiuann internaltnal university
+Qaiwan internaltnal university
 
 ### work experiance
 
